@@ -3,6 +3,12 @@
 <!--
 **btylqr/btylqr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
+Section: Bogus Writer 
+- This writer bogus things
+- This writer bogus things dhimy sniff women ass and pussy 
+
+jmabi 
+
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
